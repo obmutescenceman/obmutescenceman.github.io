@@ -1,0 +1,2 @@
+# obmutescenceman.github.io
+Blog
